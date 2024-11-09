@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlparslannGulsenn
-- 👀 I’m interested in learning new languages like English or German.
+- 👀 I’m interested in learning new languages like English or German or any coding language.
 - 🌱 I’m currently learning HTML coding
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me alparslanngulsenn@gmail.com
